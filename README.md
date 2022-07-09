@@ -1,1 +1,0 @@
-# Zawalo PAKISTAN ZINDABAD 
